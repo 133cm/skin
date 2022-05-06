@@ -14,3 +14,6 @@ The only thing I changed was  [hitsound](https://www.youtube.com/watch?v=qGsoISn
 # [azerite edit](https://mega.nz/file/41VixagY#b3yD2XfB4YMRUGHic_auon09O59SaWE7urJNR8kkG6w)
 It is the same hitsound as [dddddv2 edit](https://www.youtube.com/watch?v=qGsoISn9i2k)
 ![alt](https://i.imgur.com/37x0hI0.png)
+
+# [ChocoPafe Skin](https://mega.nz/file/llkgSQhL#44Xt0Tcqx4Q-SiAhQ4fYqYQdvYt8StdoQD0iaLVsIEQ)
+![alt](https://i.imgur.com/CAkPhvu.png)
