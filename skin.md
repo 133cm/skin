@@ -1,6 +1,5 @@
 # SKIN
 #### If something is wrong or broken please PM me at discord : 133#1173 
-#### https://osu.ppy.sh/users/133cm
 
 
 
