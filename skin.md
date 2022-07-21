@@ -1,5 +1,5 @@
 # SKIN
-#### If something is wrong or broken please PM me at discord : 133#1173 
+####discord : 𝟷𝟹𝟹#1173
 
 
 # [Azezzz](https://mega.nz/file/ExdWnSTQ#GpjUU0YYDzMCJYMjrDTq1vdtwlWbH38ZSzkTols3Qu4)
