@@ -1,5 +1,5 @@
 # SKIN
-#### discord : 𝟷𝟹𝟹#1173
+#### discord : 133#1173
 
 
 # [Azezzz](https://mega.nz/file/ExdWnSTQ#GpjUU0YYDzMCJYMjrDTq1vdtwlWbH38ZSzkTols3Qu4)
